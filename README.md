@@ -1,1 +1,1 @@
-easy frag and dropn into rescourse
+easy frag and dropn into rescourse folder
